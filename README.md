@@ -9,6 +9,7 @@
 ## 📫 Contato
 
 - 📧 Email: [karengiovannasouthier1@gmail.com](mailto:karengiovannasouthier1@gmail.com)
+- 💼 Linkedin:  [Karen Giovanna Southier](https://www.linkedin.com/in/karen-giovanna-southier-8b36b5313/?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 📸 Instagram: [Karen Southier](https://www.instagram.com/karen_southier/?igsh=MTlhNXM1OGgxdDRlMA%3D%3D)
 
 ---
