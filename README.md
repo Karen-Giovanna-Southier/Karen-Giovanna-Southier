@@ -1,7 +1,7 @@
 # Olá, eu sou a Karen Southier! 👋✨
 
 🎓 Atualmente sou estudante de **Análise e Desenvolvimento de Sistemas** — 3º período.  
-🌐 Apaixonada por **desenvolvimento web**, estou sempre buscando aprender, ajudar outras pessoas e conquistar meu espaço na área!  
+🌐 Apaixonada por **frontend web**, estou sempre buscando aprender, ajudar outras pessoas e conquistar meu espaço na área!  
 🚀 Se você também curte **Front-End**, vem acompanhar minha evolução por aqui e nas minhas redes sociais! 💻❤️
 
 ---
